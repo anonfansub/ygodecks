@@ -1,3 +1,7 @@
-please use my master duel code: 28bcba4d
+Please use my Master Duel campaign code: 28bcba4d
 
-**Decks no formato .ydk compatível com EDOPro e Duelingbook.**
+More than 400 decks ready to play!
+
+All starter and structure decks are identical to the official releases. 
+
+You can open .ydk files with EDOPro, https://yugiohdeck.github.io/ or https://www.duelingbook.com/
