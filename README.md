@@ -1,4 +1,4 @@
-![image=300x300](http://i.epvpimg.com/04aYcab.png)
+![magician](http://i.epvpimg.com/31Gpaab.png)
 
 Master Duel Player ID: 535-996-371
 
