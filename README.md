@@ -1,4 +1,6 @@
-Please use my Master Duel campaign code: 28bcba4d
+![image=300x300](http://i.epvpimg.com/04aYcab.png)
+
+Master Duel Player ID: 535-996-371
 
 More than 400 decks ready to play!
 
